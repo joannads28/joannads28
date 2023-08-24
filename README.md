@@ -1,5 +1,5 @@
 ### Olá!
-Me chamo Joanna, aluna do CEPB, 1°A. 🥰  🥰 
+Me chamo Joanna.
 
 Tenho interesse em mídias sociais, marketing digital e fotografia.
 
