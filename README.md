@@ -1,4 +1,7 @@
-### OI GALERA 👋
+### Olá!
+Me chamo Joanna, aluna do CEPB, 1°A.
+16 anos.
+Tenho interesse em mídias sociais, marketing digital e fotografia.
 
 <!--
 **joannads28/joannads28** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
